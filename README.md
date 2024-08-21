@@ -1,6 +1,7 @@
-## Hi there 👋
+## SOCORRO EU NÃO AGUENTO MAIS W̷H̷U̷A̷A̷S̷A̷A̷A̷H̷S̷A̷H̷S̷A̷D̷A̷D̷A̷D̷S̷A̷D̷ 😄
 
 ![](https://media.tenor.com/AanF1BaWq7YAAAAd/meme.gif)
+![](https://media1.tenor.com/m/0Yv8_GOABQUAAAAC/explosion-explode.gif)
 
 <!--
 **DRS2A/DRS2A** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
