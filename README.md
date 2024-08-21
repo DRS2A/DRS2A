@@ -1,5 +1,7 @@
 ## Hi there 👋
 
+![](https://media.tenor.com/AanF1BaWq7YAAAAd/meme.gif)
+
 <!--
 **DRS2A/DRS2A** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
