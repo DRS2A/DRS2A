@@ -1,3 +1,9 @@
+### Boas vindas ao meu perfil :blue_heart
+
+- Estou estudando na [Alura](https://www.alura.com.br)
+- Estou me desenvolvendo na linguagem JavaScript
+- Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
+
 ## SOCORRO EU NÃO AGUENTO MAIS W̷H̷U̷A̷A̷S̷A̷A̷A̷H̷S̷A̷H̷S̷A̷D̷A̷D̷A̷D̷S̷A̷D̷ 😄
 
 ![](https://media.tenor.com/AanF1BaWq7YAAAAd/meme.gif)
